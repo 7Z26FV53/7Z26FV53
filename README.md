@@ -1,3 +1,17 @@
+# S
+# A
+# C
+# A
+# B
+# A
+# M
+# B
+# A
+# S
+# P
+# I
+# S
+
 - 👋 Hi, I’m @7Z26FV53
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
